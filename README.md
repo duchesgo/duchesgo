@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Gontran DUCHESNE</h1>
-<h3 align="center">Equity partner with industrial and tech expertise</h3>
+<h3 align="center">Experienced partner in private equity for twenty years during which he invested in c. fifteen enterprises, covering several economic sectors, in agribusiness, industry, distribution, services, health and information and communication technologies (TMT sector). Contributed to the development of these companies through geographic expansion efforts (national or international), strengthening the customer base or expansion of the product offer via the recruitment of managers (finance, trade, technology…), c. thirty acquisitions and corporate finance transactions (reduction in the cost of debt…). Supervisory board member for a dozen of companies, among which seven times chairman of the supervisory board.</h3>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
